@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SOAI980131HCHTCR09
+SOAI980131HCHTCR09
